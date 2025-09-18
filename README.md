@@ -1,2 +1,2 @@
 # Tugas-Project-Eskul-RPL
-pe
+Tugas Project Rizki Hersya Ariza X PPLG 1
